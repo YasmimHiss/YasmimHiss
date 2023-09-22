@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there sou japonesa que não sabe japonês
+posso falar ohayou oni-chan 50,00 dólar
+
 
 <!--
 **YasmimHiss/YasmimHiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
